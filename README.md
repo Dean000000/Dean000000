@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @Dean000000
+- 👀 I’m interested in wordpress plugins
+- 🌱 I’m currently learning web3
+- 💞️ I’m looking to collaborate on web3 wordpress plugins
+- - 📫 How to reach me dean@bloggersplace.com
+- 
